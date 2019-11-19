@@ -1,0 +1,2 @@
+# prestosolidario
+1sticker
